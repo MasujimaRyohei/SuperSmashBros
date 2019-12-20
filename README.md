@@ -1,0 +1,2 @@
+# SmaBroPlayableCharacterList
+Nintendo is God!
