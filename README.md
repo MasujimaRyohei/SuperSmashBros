@@ -1,5 +1,5 @@
 # SmaBroPlayableCharacterList
-Nintendo is God!
+Nintendo is God!!
 
 # Links
 
